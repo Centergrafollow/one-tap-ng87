@@ -1,4 +1,4 @@
-
+one tap best Script offers the most advanced one tap Script, with no clip and auto-upgrade. Perfect for dominating any match.
 
 
 
